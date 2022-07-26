@@ -49,6 +49,7 @@ vv idke trail, and old yellow cursor in the cursor folder.
 # [Zylice Skin Mix (2022 Compatibility Ver.)]( https://drive.google.com/file/d/1QRsELktLnH--R5zOwpXYjSnreT6Q3_jM/view)
 ![](https://cdn.discordapp.com/attachments/332069109732999169/1000345456376807434/screenshot025.jpg)
 
-
+# [varvalian idke trail]( https://drive.google.com/file/d/12xHpKcdN5HNnAQnjL8JN507ZyQEEFCn-/view)
+![](https://skins.osuck.net/uploads/posts/2019-07/1561977645_screenshot5556.jpg)
 
 
